@@ -6,3 +6,5 @@ Solomon Okomowho - The Edenian Knight
 Emma Osagiede - Iamasigma
 ### Helper
 Efe Flourish Osagiede - Trixie-Gina
+### Queen Bee
+Efua Osagiede - Shimmering-Siren
