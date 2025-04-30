@@ -8,3 +8,5 @@ Emma Osagiede - Iamasigma
 Efe Flourish Osagiede - Trixie-Gina
 ### Queen Bee
 Efua Osagiede - Shimmering-Siren
+### High leader 2 
+Olayinka Adekolu Enoch - itsenochforlife
