@@ -10,3 +10,5 @@ Efe Flourish Osagiede - Trixie-Gina
 Efua Osagiede - Shimmering-Siren
 ### High leader 2 
 Olayinka Adekolu Enoch - itsenochforlife
+### Avenger
+Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
