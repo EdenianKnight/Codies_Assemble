@@ -14,3 +14,7 @@ Olayinka Adekolu Enoch - itsenochforlife
 Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
 ###anime lover
 lottin princess cyrianna beriyuy-daisy2princess 
+### Examiner
+Dania Mijewonuke Basil - Hypertexter-On-Code
+### Silence
+Cyriann Melverich Moh - Cyria - Maker
