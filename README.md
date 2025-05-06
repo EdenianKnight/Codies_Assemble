@@ -12,7 +12,7 @@ Efua Osagiede - Shimmering-Siren
 Olayinka Adekolu Enoch - itsenochforlife
 ### Avenger
 Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
-###anime lover
+### anime lover
 lottin princess cyrianna beriyuy-daisy2princess 
 ### Examiner
 Dania Mijewonuke Basil - Hypertexter-On-Code
