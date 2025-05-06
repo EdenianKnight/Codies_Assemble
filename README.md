@@ -18,3 +18,5 @@ lottin princess cyrianna beriyuy-daisy2princess
 Dania Mijewonuke Basil - Hypertexter-On-Code
 ### Silence
 Cyriann Melverich Moh - Cyria - Maker
+### Jester
+Titobiouluwa David Ibidoja - Davidoja1
