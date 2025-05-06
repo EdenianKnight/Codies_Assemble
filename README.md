@@ -12,3 +12,5 @@ Efua Osagiede - Shimmering-Siren
 Olayinka Adekolu Enoch - itsenochforlife
 ### Avenger
 Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
+### Examiner
+Dania Mijewonuke Basil - Hypertexter-On-Code
