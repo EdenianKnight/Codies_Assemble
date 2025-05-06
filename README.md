@@ -12,5 +12,5 @@ Efua Osagiede - Shimmering-Siren
 Olayinka Adekolu Enoch - itsenochforlife
 ### Avenger
 Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
-###anime watcher
-lottin princess cyrianna beriyuy-daisy2princess
+###anime lover
+lottin princess cyrianna beriyuy-daisy2princess 
