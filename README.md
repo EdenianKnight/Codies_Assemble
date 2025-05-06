@@ -14,3 +14,5 @@ Olayinka Adekolu Enoch - itsenochforlife
 Honour Chimdiebube Uzochukwu - Max-Techno-Wizard
 ### Examiner
 Dania Mijewonuke Basil - Hypertexter-On-Code
+### Silence
+Cyriann Melverich Moh - Cyria - Maker
